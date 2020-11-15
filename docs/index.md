@@ -58,4 +58,4 @@ This policy is effective as of 2020-11-10
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, or have any questions regarding your data (see or delete) do not hesitate to contact me at erikpersson96@hotmail.com.
+If you have any questions or suggestions about my Privacy Policy, or have any questions regarding your data (see or delete) do not hesitate to contact me at dev.erikpersson@gmail.com.
